@@ -1,0 +1,34 @@
+| regulation    | urogenital     |
+| generations   | nitrogenase    |
+| algorithms    | logarithms     |
+| compressed    | decompress     |
+| recruitment   | current time   |
+| enlargement   | greenmantle    |
+| assimilation  | islamisation   |
+| interpreter   | reinterpret    |
+| reductions    | discounter     |
+| incorporate   | procreation    |
+| legislator    | allegorists    |
+| oscillation   | colonialist    |
+| mountaineer   | enumeration    |
+| catherals     | hard castle    |
+| insatiable    | banalities     |
+| marginally    | alarmingly     |
+| chattering    | ratcheting     |
+| absolution    | isobutanol     |
+| incorporate   | procreation    |
+| supersonic    | percussion     |
+| complicates   | ectoplasmic    |
+| tapestries    | striptease     |
+| streamlined   | derailments    |
+| parenthesis   | interphases    |
+| paternalistic | antiparticles  |
+| cephalometric | petrochemicals |
+| inconsiderate | containerised  |
+| gasherbrum    | hamburgers     |
+| desecration   | considerate    |
+| disharmony    | hydramnios     |
+| nationalised  | desalination   |
+| relationships | rhinoplasties  |
+| residential   | estrildinae    |
+| excitation    | intoxicate     |
